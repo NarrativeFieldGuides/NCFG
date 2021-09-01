@@ -1,0 +1,1 @@
+Continuity Scheduling is in common use by [[Political Campaigns]], [[Advertisers]], and [[Social Media Influencers]]

@@ -1,0 +1,2 @@
+Continuity Scheduling is sourced from, or most relevant to, the following fields:
+[[Marketing and Advertising]], [[Journalism]], [[Mass Communication]], [[Information Operations]], [[Political Campaign Management]]
